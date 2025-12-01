@@ -1,0 +1,1 @@
+# catalogoBamboo2026
